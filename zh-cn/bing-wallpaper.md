@@ -1,0 +1,349 @@
+## Bing Wallpaper
+2023-04-21 | [普罗奇达岛，意大利 (© Sean Pavone/Shutterstock)](https://cn.bing.com/th?id=OHR.ProcidaItaly_ZH-CN7712975930_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-20 | [克雷斯特德比特山上方的月食，科罗拉多州，美国 (© Mengzhonghua Photography/Getty Images)](https://cn.bing.com/th?id=OHR.CrestedButteEclispe_ZH-CN5715446670_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-19 | [褐头凤鹛 (© Staffan Widstrand/Minden Pictures)](https://cn.bing.com/th?id=OHR.TaiwanYuhina_ZH-CN6541884178_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-18 | [马丘比丘，秘鲁 (© Dora Dalton/Getty Images)](https://cn.bing.com/th?id=OHR.MPPUnesco_ZH-CN8076198158_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-17 | [布列塔尼的小米努灯塔，法国 (© RooM the Agency/Alamy)](https://cn.bing.com/th?id=OHR.MinouLighthouse_ZH-CN7940024247_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-16 | [阿德莱德国际风筝节，澳大利亚 (© Andrey Moisseyev/Alamy)](https://cn.bing.com/th?id=OHR.KiteDay_ZH-CN7813901578_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-15 | [从纳哈加尔城堡鸟瞰斋浦尔，印度 (© Sean3810/iStock/Getty Images Plus)](https://cn.bing.com/th?id=OHR.NahargarhFort_ZH-CN7681434372_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-14 | [红海星, 地中海 (© Hans Leijnse/Minden Pictures)](https://cn.bing.com/th?id=OHR.RedSeaStars_ZH-CN6243743747_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-13 | [斯诺登尼亚国家公园，威尔士，英国 (© Sebastian Wasek/eStock Photo)](https://cn.bing.com/th?id=OHR.SnowdoniaNational_ZH-CN7415540950_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-12 | [从国际空间站拍摄的地球 (© Tim Peake/ESA/NASA via Getty Images)](https://cn.bing.com/th?id=OHR.EuropeFromISS_ZH-CN0722816540_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-11 | [哥伦比亚河峡谷，俄勒冈州，美国 (© Chase Dekker Wild-Life Images/Getty Images)](https://cn.bing.com/th?id=OHR.MossyGrottoFalls_ZH-CN2490591617_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-10 | [安博塞利国家公园的大象，肯尼亚 (© Diana Robinson/Getty Images)](https://cn.bing.com/th?id=OHR.ElephantTwins_ZH-CN6743766062_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-09 | [复活节彩蛋 (© fotomem/Getty Images)](https://cn.bing.com/th?id=OHR.LithuanianEggs_ZH-CN6609820454_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-08 | [巨人之路，北爱尔兰，英国 (© DieterMeyrl/Getty Images)](https://cn.bing.com/th?id=OHR.NIrelandGiants_ZH-CN6110576507_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-07 | [欧亚河狸宝宝，芬兰 (© Danny Green/Minden Pictures)](https://cn.bing.com/th?id=OHR.KitsAspen_ZH-CN2160526845_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-06 | [月亮升起，图森，亚利桑那州，美国 (© Tim Murphy/Shutterstock)](https://cn.bing.com/th?id=OHR.ArizonaPinkMoon_ZH-CN5545607389_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-05 | [杭州西湖水墨意境般的风景，浙江省，中国 (© zhangshuang/Getty Images)](https://cn.bing.com/th?id=OHR.QingMing2023_ZH-CN6951199028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-04 | [科尔多瓦的古罗马桥，西班牙 (© Jeremy Woodhouse/Getty Images)](https://cn.bing.com/th?id=OHR.RomanBridge_ZH-CN4699931052_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-03 | [大岛上的霍瑙瑙国家历史公园，夏威夷 (© Westend61/Getty Images)](https://cn.bing.com/th?id=OHR.HonaunauNP_ZH-CN4491662962_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-02 | [爪哇岛东部的婆罗摩火山，印度尼西亚 (© Bento Fotography/Getty Images)](https://cn.bing.com/th?id=OHR.JavaBromo_ZH-CN2744043733_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-04-01 | [爪哇树蛙 (© kuritafsheen/Getty Images)](https://cn.bing.com/th?id=OHR.FrogMonth_ZH-CN3874143397_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-31 | [斯太尔河, 奥地利 (© guenterguni/Getty Images)](https://cn.bing.com/th?id=OHR.SteyrRiver_ZH-CN3175702026_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-30 | [孔雀羽毛 (© sarayut Thaneerat/Getty Images)](https://cn.bing.com/th?id=OHR.PeacockFeathers_ZH-CN3403145691_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-29 | [两只海牛，佛罗里达州的水晶河，美国 (© Gregory Sweeney/Getty Images)](https://cn.bing.com/th?id=OHR.NuzzleManatee_ZH-CN3263788190_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-28 | [意大利三峰山上空的银河 (© Juan Romero/Cavan Images)](https://cn.bing.com/th?id=OHR.MWDolomites_ZH-CN2886991396_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-27 | [云层中的纽约市天际线 (© Orbon Alija/Getty Images)](https://cn.bing.com/th?id=OHR.NYCClouds_ZH-CN2585785154_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-26 | [安沙波利哥沙漠州立公园的野花，加利福尼亚州，美国 (© Ron and Patty Thomas/Getty Images)](https://cn.bing.com/th?id=OHR.WildAnza_ZH-CN2384861750_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-25 | [塞西尔布鲁尔楼梯，伦敦，英国 (© Yiran An/Getty Images)](https://cn.bing.com/th?id=OHR.CecilBrewerStaircase_ZH-CN2117182176_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-24 | [盛开的熊蒜，海尼希国家公园，德国 (© Frank Sommariva/Getty Images)](https://cn.bing.com/th?id=OHR.WildGarlic_ZH-CN6787340186_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-23 | [杜费里峡谷，上萨瓦省，法国 (© Jean-Philippe Delobelle/Biosphoto/Alamy)](https://cn.bing.com/th?id=OHR.ChavarocheWinter_ZH-CN1842519491_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-22 | [鲍威尔湖，美国 (© Peter Schaefer/Alamy)](https://cn.bing.com/th?id=OHR.LakePowellAerial_ZH-CN1427611965_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-21 | [彩色粉笔 (© Stephen Shepherd/Plainpicture)](https://cn.bing.com/th?id=OHR.ColourDay_ZH-CN1032554089_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-20 | [紫番红花 (© Raimund Linke/Getty Images)](https://cn.bing.com/th?id=OHR.PurpleCrocus_ZH-CN0891528297_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-19 | [仓鸮，英格兰 (© Ondrej Prosicky/Getty Images)](https://cn.bing.com/th?id=OHR.BarnOwlWinter_ZH-CN5484796826_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-18 | [甘博阿陨击坑，火星 (© NASA/JPL-Caltech/University of Arizona)](https://cn.bing.com/th?id=OHR.MarsTars_ZH-CN0496313394_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-17 | [ballyvooney海岸，科佩海岸地质公园，爱尔兰 (© Andrea Pistolesi/Getty Images)](https://cn.bing.com/th?id=OHR.BallyvooneyCove_ZH-CN0284564457_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-16 | [成都大熊猫繁育研究基地，中国 (© Jim Zuckerman/Jaynes Gallery/DanitaDelimont)](https://cn.bing.com/th?id=OHR.ChengduPanda_ZH-CN0043208941_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-15 | [阿圭罗村庄，西班牙 (© Andrea Comi/Getty Images)](https://cn.bing.com/th?id=OHR.AgueroSpain_ZH-CN9622864502_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-14 | [阿伊纳帕植物园灌木丛迷宫，塞浦路斯 (© Tpopova/Getty Images)](https://cn.bing.com/th?id=OHR.CyprusMaze_ZH-CN9448060895_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-13 | [正在睡觉的母狮, 塞伦盖蒂国家公园，坦桑利亚 (© Cavan Images/Shutterstock)](https://cn.bing.com/th?id=OHR.LionessesNap_ZH-CN9240393299_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-12 | [南唐斯国家公园的绵羊，东萨塞克斯郡，英国 (© Slawek Staszczuk/Alamy)](https://cn.bing.com/th?id=OHR.SouthDownsSheep_ZH-CN8986424729_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-11 | [马萨诸塞州格洛斯特的沼泽地 (© Thomas H. Mitchell/Getty Images)](https://cn.bing.com/th?id=OHR.LongWharf_ZH-CN8793669955_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-10 | [埃代尔，峰区，英国 (© John Finney/Getty Images)](https://cn.bing.com/th?id=OHR.EdaleValley_ZH-CN8464524952_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-09 | [威美亚峡谷和怀波奥瀑布上空的彩虹,考艾岛，夏威夷，美国 (© Beverley Van Praagh/Getty Images)](https://cn.bing.com/th?id=OHR.WaimeaRainbow_ZH-CN1127225170_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-08 | [极光展示，怀特霍斯，育空地区，加拿大 (© John Hyde/plainpicture/Design Pics)](https://cn.bing.com/th?id=OHR.WhitehorseAurora_ZH-CN0978404088_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-07 | [梯田鸟瞰图，元阳，中国 (© AlexGcs/Getty Images)](https://cn.bing.com/th?id=OHR.YuanyangChina_ZH-CN7360249295_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-06 | [站在自己领域的冰岛马，冰岛 (© Rodrigo Lourezini/Shutterstock)](https://cn.bing.com/th?id=OHR.IcelandHorses_ZH-CN7213041152_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-05 | [袋鼠妈妈和宝宝 (© Belle Ciezak/Shutterstock)](https://cn.bing.com/th?id=OHR.HuggingKanga_ZH-CN1045131695_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-04 | [通往皮库山的道路，葡萄牙 (© Marco Bottigelli/Getty Images)](https://cn.bing.com/th?id=OHR.PicoVolcano_ZH-CN6865997792_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-03 | [斯皮尔德拉的虎鲸，挪威 (© Alex Mustard/Minden Pictures)](https://cn.bing.com/th?id=OHR.OrcaNorway_ZH-CN6101327628_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-02 | [内格拉廷湖，格拉纳达，西班牙 (© Andres Martinez Olmedo/Getty Images)](https://cn.bing.com/th?id=OHR.NegratinSpain_ZH-CN5916944876_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-03-01 | [吕贝克的霍尔斯滕门，德国 (© Harald Nachtmann/Getty Images)](https://cn.bing.com/th?id=OHR.LuebeckCityGate_ZH-CN4618826141_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-28 | [阿特拉尼，阿马尔菲海岸，意大利 (© Amazing Aerial/Shutterstock)](https://cn.bing.com/th?id=OHR.AtraniAmalfi_ZH-CN6391731688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-27 | [北极熊在加拿大沉睡 (© David Pike/Minden Pictures)](https://cn.bing.com/th?id=OHR.PolarBearFrost_ZH-CN5918160947_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-26 | [亚马孙雨林的树冠探险，秘鲁 (© Pere Rubi/Getty Images)](https://cn.bing.com/th?id=OHR.CanopyPeru_ZH-CN5659581553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-25 | [布莱斯峡谷国家公园的石林，犹他州，美国 (© Piriya Photography/Getty Images)](https://cn.bing.com/th?id=OHR.BryceAnniv_ZH-CN5305245786_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-24 | [里士满公园的鸳鸯，伦敦，英国 (© Oscar Dewhurst/Minden Pictures)](https://cn.bing.com/th?id=OHR.RichmondParkDuck_ZH-CN4956127005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-23 | [克罗索尔山谷，斯诺多尼亚国家公园，英国威尔士 (© Matthew Williams Ellis/Plainpicture)](https://cn.bing.com/th?id=OHR.BabblingBrook_ZH-CN9371346787_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-22 | [菲希特尔山脉上的和平钟，萨克森州，德国 (© Jan Drahokoupil/Getty Images)](https://cn.bing.com/th?id=OHR.FriedensglockeFichtelberg_ZH-CN5510489151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-21 | [新奥尔良法语区，路易斯安那州 (© f11photo/Getty Images)](https://cn.bing.com/th?id=OHR.MardiGrasNOLA_ZH-CN9628788934_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-20 | [Itaimbezinho峡谷，巴西 (© NidoHuebl/Getty Images)](https://cn.bing.com/th?id=OHR.Itaimbezinho_ZH-CN5641449623_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-19 | [毛伊岛附近的座头鲸，美国夏威夷 (© Flip Nicklin/Minden Pictures)](https://cn.bing.com/th?id=OHR.MauiWhale_ZH-CN6664793962_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-18 | [埃本冰洞，密歇根上半岛，美国 (© Dean Pennala/Shutterstock)](https://cn.bing.com/th?id=OHR.EbenIceCave_ZH-CN6035107581_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-17 | [栖息在红袋鼠爪枝干上的艾氏煌蜂鸟 (© GypsyPictureShow/Shutterstock)](https://cn.bing.com/th?id=OHR.BirdcountAllen_ZH-CN4029022734_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-16 | [“火流”马尾瀑布，约塞米蒂国家公园，美国加利福尼亚州 (© Jeff Lewis/Tandem Stills + Motion)](https://cn.bing.com/th?id=OHR.FireFallYosemite_ZH-CN3351604820_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-15 | [河马妈妈和宝宝，乔贝国家公园，博茨瓦纳 (© jacobeukman/Getty Images)](https://cn.bing.com/th?id=OHR.HippoDayChobe_ZH-CN2883647954_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-14 | [日本北海道小樽雪灯之路的冰屋 (© T Photography/Shutterstock)](https://cn.bing.com/th?id=OHR.OtaruIgloo_ZH-CN2078929256_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-13 | [阿卡切斯瞭望台，月亮谷，智利 (© Ignacio Palacios/Getty Images)](https://cn.bing.com/th?id=OHR.MoonValley_ZH-CN1906470869_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-12 | [一对蓝脚鲣鸟，加拉帕戈斯群岛，厄瓜多尔 (© Tui De Roy/Minden Pictures)](https://cn.bing.com/th?id=OHR.BoobyDarwinDay_ZH-CN9917306809_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-11 | [死亡谷扎布里斯基角上空的银河，美国加利福尼亚州 (© Matt Anderson Photography/Getty Images)](https://cn.bing.com/th?id=OHR.DarkSkiesDV_ZH-CN1076500221_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-10 | [埃庇道鲁斯剧场, 希腊阿尔戈利斯省 (© George Pachantouris/Getty Images)](https://cn.bing.com/th?id=OHR.EpidaurusGreece_ZH-CN0640135476_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-02-09 | [下羚羊峡谷，亚利桑那州，美国 (© AZCat/Getty Images)](https://cn.bing.com/th?id=OHR.LowerAntelopeAZ_ZH-CN4758496750_UHD.jpg) 
+
+2023-02-08 | [艾琳多南堡，苏格兰高地 (© VisualCommunications/Getty Images)](https://cn.bing.com/th?id=OHR.EileanDonanDawn_ZH-CN0383017858_UHD.jpg) 
+
+2023-02-07 | [拉布罗小镇，列蒂省，意大利 (© Marco Ilari/Shutterstock)](https://cn.bing.com/th?id=OHR.MedievalLabro_ZH-CN0015356188_UHD.jpg) 
+
+2023-02-06 | [峡湾国家公园，新西兰南岛 (© WitR/Adobe Stock)](https://cn.bing.com/th?id=OHR.WaitangiFjordlandNP_ZH-CN9436140228_UHD.jpg) 
+
+2023-02-05 | [毛茸茸又可爱的山兔 (© Ben Hall/Minden Pictures)](https://cn.bing.com/th?id=OHR.YearRabbit_ZH-CN2751166096_UHD.jpg) 
+
+2023-02-04 | [永福樱花园，福建省龙岩市, 中国 (© SEN LI/Getty Images)](https://cn.bing.com/th?id=OHR.Lichun2023_ZH-CN7842399047_UHD.jpg) 
+
+2023-02-03 | [费尔蒙芳堤娜城堡酒店，魁北克省，加拿大](https://cn.bing.com/th?id=OHR.QuebecFrontenac_ZH-CN9519096458_UHD.jpg) 
+
+2023-02-02 | [高地陶恩国家公园内的高山土拨鼠，奥地利](https://cn.bing.com/th?id=OHR.GroundhogThree_ZH-CN6720558481_UHD.jpg) 
+
+2023-02-01 | [皮埃尔丰城堡，皮卡第大区，法国](https://cn.bing.com/th?id=OHR.SunriseCastle_ZH-CN6235928386_UHD.jpg) 
+
+2023-01-31 | [南非自然保护区的斑马](https://cn.bing.com/th?id=OHR.ZebraTrio_ZH-CN5902552401_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-30 | [卡纳塔克邦的纳加尔霍雷国家公园，印度](https://cn.bing.com/th?id=OHR.NagarholeNationalPark_ZH-CN2550578922_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-29 | [埃塞克斯的乌鸫，英国](https://cn.bing.com/th?id=OHR.BlackbirdDay_ZH-CN2291101162_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-28 | [从国际空间站看到的巴哈马周围的蓝绿色水域](https://cn.bing.com/th?id=OHR.BlueBahamas_ZH-CN2083290847_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-27 | [瓜纳阿卡维韦斯半岛国家公园的红树林，古巴](https://cn.bing.com/th?id=OHR.RedMangrove_ZH-CN4083989028_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-26 | [天门洞，湖南天门山国家森林公园，中国](https://cn.bing.com/th?id=OHR.HighArchChina_ZH-CN8170154553_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-25 | [位于阿伯费尔迪桦树林中的罗伯特·彭斯雕像, 苏格兰](https://cn.bing.com/th?id=OHR.BirksofAberfeldy_ZH-CN7810226692_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-24 | [多洛米蒂山谷中的科莱圣卢恰小镇，意大利](https://cn.bing.com/th?id=OHR.ColleSantaLucia_ZH-CN7638164714_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-23 | [复活节岛上的摩艾石像，智利](https://cn.bing.com/th?id=OHR.SunriseMoai_ZH-CN7413178404_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-22 | [春节的桃花和红灯笼](https://cn.bing.com/th?id=OHR.ChineseSpringFestival2023_ZH-CN7281854882_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-21 | [除夕夜的中国新年灯笼](https://cn.bing.com/th?id=OHR.ChineseNewYearEve2023_ZH-CN7188893388_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-20 | [王企鹅，福克兰群岛](https://cn.bing.com/th?id=OHR.FalklandKings_ZH-CN6891102487_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-19 | [帕克城, 美国犹他州](https://cn.bing.com/th?id=OHR.SFFParkCity_ZH-CN6707019061_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-18 | [白沙国家公园，美国新墨西哥州](https://cn.bing.com/th?id=OHR.WhiteSands_ZH-CN6500188005_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-17 | [穆涅略斯自然保护区，西班牙](https://cn.bing.com/th?id=OHR.SessileOaks_ZH-CN6385464274_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-16 | [麦切纳山和结冰的亚伯拉罕湖，加拿大艾伯塔省](https://cn.bing.com/th?id=OHR.FrozenBubblesAlberta_ZH-CN6154214678_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-15 | [横贯图尔库的奥拉河, 芬兰](https://cn.bing.com/th?id=OHR.Turku_ZH-CN6008877545_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-14 | [吃樱桃树枝的毛驴](https://cn.bing.com/th?id=OHR.DonkeyFeast_ZH-CN5880627132_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-13 | [海峡群岛国家公园的巨藻，美国加利福尼亚州](https://cn.bing.com/th?id=OHR.Pneumatocysts_ZH-CN5721988566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-12 | [博斯普鲁斯海峡的如梅利堡垒，土耳其伊斯坦布尔](https://cn.bing.com/th?id=OHR.RumeliHisari_ZH-CN0185820275_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-11 | [戈德雷维灯塔，英国康沃尔郡](https://cn.bing.com/th?id=OHR.GodrevyRocks_ZH-CN0051118926_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-10 | [爱沙尼亚佩普斯湖上的小冰丘](https://cn.bing.com/th?id=OHR.HummockIce_ZH-CN9917832145_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-09 | [南达科他州风洞国家公园的水牛](https://cn.bing.com/th?id=OHR.BisonWindCave_ZH-CN9778045938_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-08 | [科罗拉多州布雷肯里奇](https://cn.bing.com/th?id=OHR.Breckenridge_ZH-CN9598860382_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-07 | [羊毛和马海毛纱线](https://cn.bing.com/th?id=OHR.Mohair_ZH-CN9435762268_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-06 | [英格兰湖区的Black Fell](https://cn.bing.com/th?id=OHR.BlackFell_ZH-CN9224189688_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-05 | [白鼬 (Mustela erminea), 上巴伐利亚，德国](https://cn.bing.com/th?id=OHR.HermelinSchnee_ZH-CN8839783506_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-04 | [从国际空间站看到的地球](https://cn.bing.com/th?id=OHR.Perihelion_ZH-CN8681537155_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-03 | [博斯克·德尔·阿帕奇国家野生动物保护区的沙丘鹤，美国新墨西哥州](https://cn.bing.com/th?id=OHR.SandhillSleeping_ZH-CN8483997851_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-02 | [霍亨索伦城堡，德国](https://cn.bing.com/th?id=OHR.HohenzollernBurg_ZH-CN8109082566_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2023-01-01 | [北极熊斯瓦尔巴群岛，挪威](https://cn.bing.com/th?id=OHR.NorwayNYD_ZH-CN7856439066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-31 | [一起迎接2023年](https://cn.bing.com/th?id=OHR.TheNationaDay_ZH-CN7631842209_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-29 | [斯托尔石山，天空之岛，苏格兰](https://cn.bing.com/th?id=OHR.StorrRocks_ZH-CN4956679462_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-28 | [马洛亚，瑞士](https://cn.bing.com/th?id=OHR.ChiesaBianca_ZH-CN4208333975_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-27 | [格林达维克的蓝湖，冰岛](https://cn.bing.com/th?id=OHR.BlueLagoon_ZH-CN3874240119_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-26 | [贝弗利·韦斯特伍德，东约克郡，英格兰](https://cn.bing.com/th?id=OHR.BeverleyWestwood_ZH-CN3729041588_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-24 | [狍子，特伦蒂诺-上阿迪杰大区，意大利](https://cn.bing.com/th?id=OHR.RoeTrentinoSnow_ZH-CN3122890500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-23 | [南极洲的巴布亚企鹅](https://cn.bing.com/th?id=OHR.GentooGrievances_ZH-CN2875292726_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-22 | [安纳西，法国上瓦萨省](https://cn.bing.com/th?id=OHR.AnnecyXmas_ZH-CN2540694929_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-21 | [多洛米蒂山脉安特莫亚湖上的日晕，意大利](https://cn.bing.com/th?id=OHR.SolarHalo_ZH-CN2320274967_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-20 | [维也纳美景宫的圣诞市场，奥地利](https://cn.bing.com/th?id=OHR.PalaceBelvedere_ZH-CN1818163173_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-19 | [栖息在北美冬青上的北美红雀，美国伊利诺伊州](https://cn.bing.com/th?id=OHR.WinterberryBush_ZH-CN1414026440_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-18 | [迈阿密南海滩，美国佛罗里达州](https://cn.bing.com/th?id=OHR.SouthBeach_ZH-CN0989287734_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-17 | [冰川国家公园的山羊，美国蒙大拿州](https://cn.bing.com/th?id=OHR.GlacierGoats_ZH-CN0764810245_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-16 | [杜德萨加尔瀑布，印度果阿](https://cn.bing.com/th?id=OHR.DudhsagarFallsGoa_ZH-CN0466471017_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-15 | [博罗韦茨，保加利亚](https://cn.bing.com/th?id=OHR.Borovets_ZH-CN5914681811_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-14 | [大帕拉迪索国家公园，意大利](https://cn.bing.com/th?id=OHR.GranParadiso100th_ZH-CN5744961532_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-13 | [哈尔施塔特，奥地利](https://cn.bing.com/th?id=OHR.InstagramHallstatt_ZH-CN5309282641_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-12 | [一品红](https://cn.bing.com/th?id=OHR.PoinsettiaDay_ZH-CN5115071992_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-11 | [泰根塞山脉Roßstein山顶的景色，德国巴伐利亚州](https://cn.bing.com/th?id=OHR.BuchsteinRossstein_ZH-CN4924477552_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-10 | [玻利维亚的乌尤尼盐沼](https://cn.bing.com/th?id=OHR.SaltDesert_ZH-CN4728398785_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-09 | [多弗勒山-松达尔国家公园的麝牛与她的宝宝，挪威](https://cn.bing.com/th?id=OHR.NorwayMuskox_ZH-CN6137934745_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-08 | [多弗勒山-松达尔国家公园的麝牛与她的宝宝，挪威](https://cn.bing.com/th?id=OHR.WistmansWood_ZH-CN4453301808_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-07 | [贾斯珀国家公园纠结溪瀑布，阿尔伯塔省，加拿大](https://cn.bing.com/th?id=OHR.TangleCreekFalls_ZH-CN4281148652_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-06 | [大沼泽国家公园里的一只大白鹭，美国佛罗里达州](https://cn.bing.com/th?id=OHR.GreatEgret_ZH-CN4088261519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-05 | [古瓦哈提的竹子，印度阿萨姆邦](https://cn.bing.com/th?id=OHR.BambooTreesIndia_ZH-CN3943852151_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-04 | [乞力马扎罗山附近的大象，安波塞利国家公园，肯尼亚](https://cn.bing.com/th?id=OHR.KilimanjaroElephants_ZH-CN3779609103_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-03 | [迈阿密海滩海洋大道，美国佛罗里达州](https://cn.bing.com/th?id=OHR.MiamiDT_ZH-CN3528760113_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-02 | [特里卡基拉河三角洲，阿拉斯加州克拉克湖国家公园，美国](https://cn.bing.com/th?id=OHR.BraidedRiverDelta_ZH-CN3352462511_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-12-01 | [江泽民逝世](https://cn.bing.com/th?id=OHR.QingmingCandle2020_ZH-CN6775701680_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-30 | [罗维尼老城，克罗地亚](https://cn.bing.com/th?id=OHR.RovinjCroatia_ZH-CN5459110500_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-29 | [正在筑巢的大蓝鹭，佛罗里达州瓦可达哈齐湿地，美国](https://cn.bing.com/th?id=OHR.HeronGiving_ZH-CN5229629007_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-28 | [火星（© NASA/Alamy）](https://cn.bing.com/th?id=OHR.RedPlanetDay_ZH-CN4913018041_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-27 | [一片飘落在龙虾爪瓣上的号角树树叶，墨西哥](https://cn.bing.com/th?id=OHR.Cecropia_ZH-CN4236630074_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-26 | [意大利西西里岛康科迪亚神庙前的一棵橄榄树](https://cn.bing.com/th?id=OHR.OliveTreeDay_ZH-CN3960861965_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-24 | [坎彭万德山，基姆高地区阿绍，德国巴伐利亚州](https://cn.bing.com/th?id=OHR.AschauChiemgau_ZH-CN1929016406_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-23 | [向日葵](https://cn.bing.com/th?id=OHR.HelianthusAnnuus_ZH-CN1675762555_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-22 | [阿姆斯特丹供水沙丘自然保护区的赤狐，荷兰](https://cn.bing.com/th?id=OHR.Waterleidingduinen_ZH-CN1430683267_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-21 | [伊索拉贝拉岛，意大利马焦雷湖](https://cn.bing.com/th?id=OHR.BorromeanIslands_ZH-CN0480730115_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-20 | [船底星云中的宇宙悬崖](https://cn.bing.com/th?id=OHR.CosmicCliffs_ZH-CN9555199651_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-19 | [犹他州锡安国家公园的维尔京河，美国](https://cn.bing.com/th?id=OHR.ZNPVR_ZH-CN0123954914_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-18 | [菲斯皇宫的大门，摩洛哥](https://cn.bing.com/th?id=OHR.IslamicArt_ZH-CN9972614185_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-17 | [威拉米特国家森林麦肯齐河步道上的桥，美国](https://cn.bing.com/th?id=OHR.McKenzieRiverTrail_ZH-CN3786429850_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-16 | [梅萨维德国家公园的悬崖宫，美国](https://cn.bing.com/th?id=OHR.Unesco50_ZH-CN3652927413_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-15 | [北美水獭在阿卡迪亚国家公园游泳，美国](https://cn.bing.com/th?id=OHR.LontraCanadensis_ZH-CN3359002168_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-14 | [哈尔基岛的圣约翰骑士中世纪城堡遗址，希腊](https://cn.bing.com/th?id=OHR.SanGiovanni_ZH-CN3184593519_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-13 | [伊萨尔河鸟瞰图，德国伦格里斯](https://cn.bing.com/th?id=OHR.IsarwinkelSylvenstein_ZH-CN2963187862_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-12 | [阿拉斯加州海恩斯附近的秃鹰群，美国](https://cn.bing.com/th?id=OHR.HainesEagle_ZH-CN1542376030_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-11 | [阿拉瓦利山脉的阿布山，印度拉贾斯坦邦](https://cn.bing.com/th?id=OHR.MountAbu_ZH-CN1348295593_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-10 | [雷暴中恶地国家公园的岩层，美国南达科他州](https://cn.bing.com/th?id=OHR.BadLightning_ZH-CN1049646409_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-09 | [萨塞克斯郡的西欧刺猬，英国](https://cn.bing.com/th?id=OHR.HedgehogNest_ZH-CN0781850458_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-08 | [清迈易鹏节升起的天灯，泰国](https://cn.bing.com/th?id=OHR.YiPeng_ZH-CN0652265903_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-07 | [庐山冬季美景，中国江西省](https://cn.bing.com/th?id=OHR.LiDong2022_ZH-CN9929478283_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-06 | [1990年纽约市马拉松比赛，参赛者穿过韦拉扎诺海峡大桥](https://cn.bing.com/th?id=OHR.MarathonSunday_ZH-CN9833453732_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-05 | [阿赫雷湖畔的泰莫特罗萨克斯城堡酒店，苏格兰](https://cn.bing.com/th?id=OHR.Trossachs_ZH-CN9299955040_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-04 | [班夫国家公园的沛托湖，加拿大艾伯塔省](https://cn.bing.com/th?id=OHR.PeytoIce_ZH-CN7517633327_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-03 | [乞力马扎罗山和非洲水牛，肯尼亚](https://cn.bing.com/th?id=OHR.AmboseliBioshere_ZH-CN7220940943_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-02 | [慕纳尔的茶园，印度喀拉拉邦](https://cn.bing.com/th?id=OHR.TeaPlantationsMunnar_ZH-CN7007323849_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-11-01 | [神秘森林里木桌上的两个微笑的万圣节南瓜](https://cn.bing.com/th?id=OHR.SmilingPunpkins2022_ZH-CN6763384812_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-10-31 | [牛津郡韦奇伍德森林的树，英国](https://cn.bing.com/th?id=OHR.WychwoodForest_ZH-CN6560180288_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-10-30 | [哈德逊湾边缘的北极熊，加拿大](https://cn.bing.com/th?id=OHR.SealRiver_ZH-CN6334858649_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-10-29 | [海洋天使](https://cn.bing.com/th?id=OHR.SeaAngel_ZH-CN6176844066_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-10-28 | [洛桑日内瓦湖上空的暴风雨，瑞典](https://cn.bing.com/th?id=OHR.FrankensteinFriday_ZH-CN5814917673_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2022-10-27 | [巴尔干中央国家公园的布罗肯现象，保加利亚](https://s.cn.bing.net/th?id=OHR.BrockenSpecter_ZH-CN5278743909_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
