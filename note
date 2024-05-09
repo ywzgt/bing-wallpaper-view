@@ -1,0 +1,38 @@
+如果需要更新存档，只要更新：
+
+bing-wallpaper.md
+或者
+zh-cn/bing-wallpaper.md
+
+然后运行 java 程序会生成相关网页和 md
+
+
+
+
+
+
+
+
+
+
+for n in `seq -w 11 -1 01`; do
+
+	for i in $(ls 2022/$n | sort -r); do
+			Y=2022
+			m=$n
+			d="${i%.json}"
+			cat "$Y/$m/$i" | sed -e '/^{$/d' -e '/^}$/d' -e 's/:/=/' -e 's/,$//' -e 's/"//' -e 's/"=/=/' -e 's/=\ "/="/' > /tmp/$i.tmp
+			. /tmp/$i.tmp
+			rm -f /tmp/$i.tmp
+			image_url="${image_url%%1920x1080.jpg*}"
+			image_url="${image_url}UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4"
+			cat <<EOF>>bing-wallpaper.tmp.md
+$Y-$m-$d | [${title}](${image_url})
+
+EOF
+	done
+
+done
+
+
+
